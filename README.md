@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @l142cc
+- 👀 something coming soon~
